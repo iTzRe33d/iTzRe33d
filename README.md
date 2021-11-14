@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @iTzRe33d
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Linux
+- 📫 How to reach me: on discord as _iTzReed#0069

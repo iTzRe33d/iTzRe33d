@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iTzRe33d
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning Linux
-- 📫 How to reach me: on discord as _iTzReed#0069
+- 📞 Contact me on discord __**_iTzReed#0069**__ .
+- 🚀 Run my own hosting company __**FVSD TECHNOLOGIES LTD**__ .
+- 🔎 I want to learn Linux .
+- 📝 HTML primary coding language .
